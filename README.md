@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dude-Sternx and ..
+- 👋 Hi, I’m @Amin KH and ..
 - ⚡ I can Fly 
 
 <!---
